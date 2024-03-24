@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java**
 
-- 📫 How to reach me **huaseyzande@gmail.com**
+- 📫 How to reach me **huaseynzade@gmail.com**
 
 - ⚡ Fun fact **AI can't take my job :)**
 
